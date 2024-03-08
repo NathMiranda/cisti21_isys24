@@ -1,1 +1,1 @@
-(https://github.com/NathMiranda/cisti21_isys24/blob/a848a78875b65b1127810e9c7bafab726d8a1c73/INTERVIEW%20SCRIPT%20(TEAM%20LEADER).pdf)https://github.com/NathMiranda/cisti21_isys24/blob/a848a78875b65b1127810e9c7bafab726d8a1c73/INTERVIEW%20SCRIPT%20(TEAM%20LEADER).pdf
+https://github.com/NathMiranda/cisti21_isys24/blob/a848a78875b65b1127810e9c7bafab726d8a1c73/INTERVIEW%20SCRIPT%20(TEAM%20LEADER).pdf)https://github.com/NathMiranda/cisti21_isys24/blob/a848a78875b65b1127810e9c7bafab726d8a1c73/INTERVIEW%20SCRIPT%20(TEAM%20LEADER).pdf
